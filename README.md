@@ -1,5 +1,5 @@
 ### Hi there 👋! I am Satyam Raj.
-A Final year student at Chandigarh university.
+A First year student at Chandigarh university.
 
 ## I'm a Developer and Student!!
 
