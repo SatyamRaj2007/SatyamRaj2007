@@ -1,5 +1,5 @@
 ### Hi there 👋! I am Satyam Raj.
-FIRST YEAR STUDENT.
+SECOND YEAR STUDENT.(2026 - 2027)
 
 ## I'm a Developer and Student!!
 
